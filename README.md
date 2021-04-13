@@ -1,0 +1,1 @@
+# ingilizce-turkce-deniz-terimleri-sozlugu
